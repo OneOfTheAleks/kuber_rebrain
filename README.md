@@ -1,1 +1,1 @@
-Описание в фвйле final.docx (dpf)
+Описание в фвйле final.docx (pdf)
